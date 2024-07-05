@@ -11,5 +11,4 @@
 
 - 📨 Contact me at **subedi.anish011@gmail.com**
 
-- 📄 More about me : https://aakash-01-1996.github.io/portfolio
 
